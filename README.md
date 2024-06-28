@@ -1,0 +1,1 @@
+# how-to-let-ai-do-your-shitty
